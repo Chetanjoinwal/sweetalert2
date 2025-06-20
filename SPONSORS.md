@@ -74,6 +74,7 @@ NSFW Sponsors
 <td align="center"><a href="https://www.myminisexdoll.com/under-300/"><img src="https://sweetalert2.github.io/images/sponsors/myminisexdoll.png" width="80"><br>cheap sexdoll</a></td>
 <td align="center"><a href="https://www.hugedildo.com/"><img src="https://sweetalert2.github.io/images/sponsors/hugedildo.png" width="80"><br>huge dildo</a></td>
 <td align="center"><a href="https://www.uusexdoll.com/"><img src="https://sweetalert2.github.io/images/sponsors/uusexdoll.png" width="80"><br>sexdoll</a></td>
+  <td align="center"><a href="https://www.uusexdoll.com/"><img src="https://www.planetecomsolutions.com/images/webP/Logo-Light.webp" width="80"><br>sexdoll</a></td>
 </tr>
 </table>
 <table>
